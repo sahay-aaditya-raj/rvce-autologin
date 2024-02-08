@@ -5,7 +5,7 @@
  * ### Select the extracted folder
 ---
 ## You are Ready to use
-### After Loading the extension you can delete the folder
+### Do not delete the extension from your system, or else you have to do it again
 
 
 For any Queries dm me at @aadityarajaashu on Telegram
