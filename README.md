@@ -8,4 +8,4 @@
 ### After Loading the extension you can delete the folder
 
 
-For any Queries dm me at [Telegram](t.me/aadityarajaashu) or @aadityarajaashu on Telegram
+For any Queries dm me at [Telegram](https://t.me/aadityarajaashu) or @aadityarajaashu on Telegram
